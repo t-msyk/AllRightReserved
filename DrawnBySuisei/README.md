@@ -4,4 +4,5 @@ I buy this illustration.
 Of course, contents in this directory is 
   - All right reserved.
   - Reproduction is prohibited.
+
 Unauthorized duplication is a violation of applicable laws.
